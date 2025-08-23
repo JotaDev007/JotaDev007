@@ -1,7 +1,7 @@
 ## Olá eu sou o João Gomes⭐
 
 - 🔭 Ainda não trabalho na área
-- 🌱 Estudando front-end
+- 🌱 Estudante
 - 💬 Não me pergunte como invocar o Exodia!
 - 📫 Contate-me pelo email: joaovitorgomes070405@gmail.com
 - ⚡ Fato engraçado: Já participei de um quadro do Muca muriçoca
